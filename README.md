@@ -1,4 +1,4 @@
-# usa_and_china_kitchen
+# USA_and China Global kitchen
 ## A new era in global diversification and product development
 ## By Anthony Matarazzo (c) 2026
 
